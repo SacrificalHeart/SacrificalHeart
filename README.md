@@ -9,13 +9,11 @@
 <p align="center">
 <img src="https://files.catbox.moe/f5swzu.png" />
 </p>
-
-<img src="https://files.catbox.moe/9fkb64.gif" />
 <div align="center">
 ℋallo !! I'm Boomi ₒᵣ Kai. 
 I'm 14 y/o
 
-　　　　　　( 6 . 30 :33 )
+  ( 6 . 30 :33 )
 
 Multishipper n rarepair enjoyer, please be respectful of my preferences n I'll respect yours too.
 
