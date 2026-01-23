@@ -28,5 +28,9 @@ I’m mostly AFK, either hanging out with my friends or making ponies. Feel free
 </p>
 
 <p align="center">
+" … 𝒴our divine being will become the foundation of our paradise! "
+</p>
+
+<p align="center">
 <img src="https://files.catbox.moe/amxpec.png" />
 </p>
