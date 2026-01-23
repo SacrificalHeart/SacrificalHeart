@@ -1,44 +1,32 @@
 <p align="center">
-<img src="https://files.catbox.moe/u1l7bf.png" />
+<img src="https://files.catbox.moe/5rgz2a.png" />
 </p>
 
 <p align="center">
-𝒲𝒆𝒍𝒄𝒐𝒎𝒆 2 𝒎𝒚 𝒑𝒓𝒐𝒇𝒊𝒍𝒆 (..◜ᴗ◝..)
+" 𝒪 n the seventh day, grant Dignity… "
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/f5swzu.png" />
-</p>
-<div align="center">
-ℋallo !! I'm Boomi ₒᵣ Kai. 
-I'm 14 y/o
-
-  ( 6 . 30 :33 )
-
-Spanish n BAD english.
-
-Multishipper n rarepair enjoyer, please be respectful of my preferences n I'll respect yours too.
-
-I'm aroace n lithromantic so don't expect any 
-confessions or reciprocation from me.
-
-Little memory issues, don't be mad if I forget smth.
-
-Istp, doomed ⁴w⁵.
-</div>
-<p align="center">
-<img src="https://files.catbox.moe/obhf28.png" />
+<img src="https://files.catbox.moe/838dn2.png" />
 </p>
 <div align="center">
-Mostly afk, either with my friends or just making ponies. ^^
-
-c+h freely !! 
-
-Int ok, just don't copy or take heavy inspo of my ponies please.
+  
+I'm Boomi ₒᵣ Kai.
+Spanish speaker, basic English. Multishipper & rarepair enjoyer — mutual respect always. I have some memory issues, so please be patient. ISTP, doomed 4w5.
 </div>
 <p align="center">
-<img src="https://files.catbox.moe/mllb9q.png"/>
+<img src="https://files.catbox.moe/3lvwsv.png" />
 </p>
+<div align="center">
+I’m mostly AFK, either hanging out with my friends or making ponies. Feel free to c+h. Int ok, just please don’t copy or take heavy inspo from my ponies.
+  
+</div>
+
+  
 <p align="center">
-<img src="https://files.catbox.moe/jvs1df.png" />
+<img src="https://files.catbox.moe/ytgy9p.png" />
+</p>
+
+<p align="center">
+<img src="https://files.catbox.moe/amxpec.png" />
 </p>
